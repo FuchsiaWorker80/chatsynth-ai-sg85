@@ -1,4 +1,4 @@
-# 
+# Nativo ChatSynth kit de ferramentas. Baixe e instale com monitoramento em tempo real e leve — rápido, seguro e fácil de usar.
 
 
 
